@@ -19,6 +19,7 @@ Salt is being added because to avoid fungus in the wheat paste while the plaster
 - Add wheat paste, mix all together. The plaster should not be to thick, otherwise it will be hard to work with. It should be quite fluid.
 - Apply with a Japanese towel.
 - Smooth out few hours later with cellulose sponge, leave to dry.
+
 > If you want you can leave the natural colour of the plaster (coffee with milk colour) or paint with nature lime & marble breathable paint.
 > Best one is Italian SIKKENS CHALIX DECOR FINITURA.
 > It can be used also as finish plaster, but mixed with water it can be used as paint/lime wash.
